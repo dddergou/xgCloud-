@@ -1,5 +1,5 @@
 # xgCloud最新官网地址（2025.9）
-
+#v2ray #shadowsocks #clash #vpn #proxy #netflix #youtube
 **点击这里注册：[xgCloud官方注册链接](https://aff1.xgsite1.cc/#/register?code=oZBbKK53 )**
 <img width="826" height="801" alt="image" src="https://github.com/user-attachments/assets/61c05ba6-568a-479c-9354-26ae1429572e" />
 <img width="808" height="424" alt="image" src="https://github.com/user-attachments/assets/a48b7103-a876-41af-99a8-e272dccde753" />
